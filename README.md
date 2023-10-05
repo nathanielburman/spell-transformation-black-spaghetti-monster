@@ -1,2 +1,22 @@
 # spell-transformation-black-spaghetti-monster
 A description of the black spaghetti monster from the science parody religion.
+
+"Lots of Spaghetti"!
+
+This is the call of the Black Spaghetti monster!
+
+He hears you, smells your vibration and lusts for science "knowledge".
+
+The spaghetti symbol will be used to make fun of science monster people. When they are doing science monster spells, we can call them out with the spaghetti monster symbol spaghetti.
+
+1. you are a black spaghetti monster
+
+2. you have one main bone meatball eye
+
+3. you have black spaghetti wings
+
+4. there is a black tea pot floating in outer space
+
+5. perks to science and intelligence
+
+this is the source.
