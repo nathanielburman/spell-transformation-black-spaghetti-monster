@@ -20,3 +20,5 @@ The spaghetti symbol will be used to make fun of science monster people. When th
 5. perks to science and intelligence
 
 this is the source.
+
+Swastikafarians are an evil variant in the pastafarian science cult.
