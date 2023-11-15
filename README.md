@@ -1,5 +1,5 @@
 # spell-transformation-black-spaghetti-monster
-A description of the black spaghetti monster from the science parody religion.
+A description of the black spaghetti monster from my parody of the science parody religion.
 
 "Lots of Spaghetti"!
 
