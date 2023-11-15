@@ -2,6 +2,8 @@
 A description of the black spaghetti monster from my parody of the science parody religion.
 
 "Lots of Spaghetti"!
+https://www.youtube.com/watch?v=raN56cNzGAM
+https://www.youtube.com/watch?v=07SeT82De7Y the 10 hour version for spellcraft.
 
 This is the call of the Black Spaghetti monster!
 
